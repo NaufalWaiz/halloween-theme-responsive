@@ -9,6 +9,6 @@
 - Compatible with all mobile devices and with a beautiful and pleasant user interface.
 
 credit : [Bedimcode](https://www.youtube.com/c/Bedimcode)
-post : [@codewithwaiz](https://naufalwaiz.github.io/halloween-theme-responsive/](https://instagram.com/codewithwaiz?igshid=MzMyNGUyNmU2YQ==)https://instagram.com/codewithwaiz?igshid=MzMyNGUyNmU2YQ==)
+post : [@codewithwaiz](https://instagram.com/codewithwaiz?igshid=MzMyNGUyNmU2YQ==)
 
 ![halloween](/preview.png)
